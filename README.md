@@ -1,0 +1,1 @@
+# madhumanishstudio_static
